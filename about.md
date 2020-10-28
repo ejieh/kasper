@@ -11,4 +11,4 @@ I worked as a developer in Lagos, Nigeria for 2 years after completing my B.Sc i
 
 Here is my [LinkedIn page](https://www.linkedin.com/in/chux-ejieh-64b62970/) if you want to know more.
 
-eqwfwef
+
