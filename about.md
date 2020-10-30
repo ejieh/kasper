@@ -9,4 +9,6 @@ Before this, I was a Data Scientist at IBM Canada (Toronto). I joined IBM immedi
 
 I live in the [KWC Area](https://en.wikipedia.org/wiki/Regional_Municipality_of_Waterloo). Here is my [LinkedIn page](https://www.linkedin.com/in/chux-ejieh-64b62970/) if you want to know more.
 
+Everything in this blog is my personal opinion and should not be taken as the position of any employer, past or present.
+
 
